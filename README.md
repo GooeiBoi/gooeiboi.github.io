@@ -1,4 +1,6 @@
 # gooeiboi.github.io
-gooeiboi and neonstrawberry are allowed to modify and clone this, but no one else.
+Why does this exist
 
-i dont know why you would be here though.
+Anyways Imma actually use this for a project with neon
+
+
